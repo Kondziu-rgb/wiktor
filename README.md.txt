@@ -1,1 +1,0 @@
-wiktor lubi grac w pilke i valoranta
